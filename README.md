@@ -1,3 +1,3 @@
 # -
 buying your items
-تاتل
+تاتلت
